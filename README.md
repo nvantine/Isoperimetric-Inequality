@@ -1,1 +1,1 @@
-[https://artsci.tamu.edu/mathematics/academics/undergraduate/drp/prior-semesters.html]
+https://artsci.tamu.edu/mathematics/academics/undergraduate/drp/prior-semesters.html
